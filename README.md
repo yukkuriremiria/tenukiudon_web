@@ -1,1 +1,0 @@
-# tenukiudon_web
